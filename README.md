@@ -1,4 +1,4 @@
-# cognizant MBZ Kolkata May2025
+# Cognizant MBZ Kolkata May2025
 
 ---
 
